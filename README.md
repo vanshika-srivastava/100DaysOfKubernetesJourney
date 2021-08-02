@@ -6,7 +6,7 @@
 
 ### Your Social
 - [✍️ Link to your Twitter](https://twitter.com/ThisisVanshika)
-- [✍️ Link to your LinkedIn](https://www.linkedin.com/in/username)
+- [✍️ Link to your LinkedIn](https://www.linkedin.com/in/vanshika-srivastava/)
 
 ## Stepping out the door
 
